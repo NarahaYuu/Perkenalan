@@ -10,5 +10,5 @@
   https://sociabuzz.com/narahayuu/tribe <br>
   <br>
   Senyum Indah <br>
-  https://github.com/NarahaYuu/Perkenalan/blob/master/Foto.JPG
+  https://github.com/NarahaYuu/Perkenalan/blob/master/Foto.jpg
 </h2>

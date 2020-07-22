@@ -7,5 +7,8 @@
   Facebook: https://www.facebook.com/bayu.nugraha.98284/ <br>
   <br>
   Bantu Saya Mendapatkan Uang :) <br>
-  https://sociabuzz.com/narahayuu/tribe
+  https://sociabuzz.com/narahayuu/tribe <br>
+  <br>
+  Senyum Indah <br>
+  https://github.com/NarahaYuu/Perkenalan/blob/master/Foto.JPG
 </h2>
